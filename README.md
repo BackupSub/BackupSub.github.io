@@ -32,7 +32,7 @@ If you see SSL Error you can pass it by this way.
 + [https://golophayjahande.com/Farcry3/PC/FanSub.Far.Cry.3.rar](https://golophayjahande.com/Farcry3/PC/FanSub.Far.Cry.3.rar) ([mirror](https://B2n.ir/n71063))
 ### PS4
 + [https://golophayjahande.com/Farcry3/PS4/EP0001-CUSA10326_00-FARCRY3REMASTER0-A0102-V0100-DUPLEX-FANSUB.rar](https://golophayjahande.com/Farcry3/PS4/EP0001-CUSA10326_00-FARCRY3REMASTER0-A0102-V0100-DUPLEX-FANSUB.rar) ([mirror](https://B2n.ir/x45511))
-+ [https://golophayjahande.com/Farcry3/PS4/EP0001-CUSA10326_00-FARCRY3REMASTER0-A0102-V0100-TheRadziu-FANSUB.rar]([https://tinyurl.com/2hv2p34u](https://golophayjahande.com/Farcry3/PS4/EP0001-CUSA10326_00-FARCRY3REMASTER0-A0102-V0100-TheRadziu-FANSUB.rar)) ([mirror](https://B2n.ir/g67683))
++ [https://golophayjahande.com/Farcry3/PS4/EP0001-CUSA10326_00-FARCRY3REMASTER0-A0102-V0100-TheRadziu-FANSUB.rar](https://golophayjahande.com/Farcry3/PS4/EP0001-CUSA10326_00-FARCRY3REMASTER0-A0102-V0100-TheRadziu-FANSUB.rar) ([mirror](https://B2n.ir/g67683))
 
 
 # SSL Error
