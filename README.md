@@ -8,10 +8,12 @@ If you see SSL Error you can pass it by this way.
 
 ## Mafia 2 orginal 
 ### PC
-+ [https://tinyurl.com/3k677pxf](https://tinyurl.com/3k677pxf) ([mirror](https://B2n.ir/e39130))
++ [https://golophayjahande.com/Mafia2-Orginal/PC/FanSub.Mafia.II.Orginal.Ver1.5.rar](https://golophayjahande.com/Mafia2-Orginal/PC/FanSub.Mafia.II.Orginal.Ver1.5.rar) ([mirror](https://B2n.ir/e39130))
 
 
 ## Mafia 2 Definitive Edition  
+### PC
++ [https://golophayjahande.com/Mafia2-DE/PC/FanSub.Mafia.II.Definitive.Edition.Ver1.5.rar](https://golophayjahande.com/Mafia2-DE/PC/FanSub.Mafia.II.Definitive.Edition.Ver1.5.rar) ([mirror](https://B2n.ir/u69712))
 ### PS4
 + [https://tinyurl.com/3n94jusu](https://tinyurl.com/3n94jusu) ([mirror](https://B2n.ir/h01262))
 + [https://tinyurl.com/yu3sn2sj](https://tinyurl.com/yu3sn2sj) ([mirror](https://B2n.ir/w74760))
@@ -23,16 +25,14 @@ If you see SSL Error you can pass it by this way.
 + [https://tinyurl.com/yjutbwes](https://tinyurl.com/yjutbwes) ([mirror](https://B2n.ir/y89172))
 + [https://tinyurl.com/3x9ty4yp](https://tinyurl.com/3x9ty4yp) ([mirror](https://B2n.ir/y40912))
 
-### PC
-+ [https://tinyurl.com/cu2wb88j](https://tinyurl.com/cu2wb88j) ([mirror](https://B2n.ir/u69712))
 
 
 ## Farcry 3  
 ### PC
-+ [https://tinyurl.com/re78yv52](https://tinyurl.com/re78yv52) ([mirror](https://B2n.ir/n71063))
++ [https://golophayjahande.com/Farcry3/PC/FanSub.Far.Cry.3.rar](https://golophayjahande.com/Farcry3/PC/FanSub.Far.Cry.3.rar) ([mirror](https://B2n.ir/n71063))
 ### PS4
-+ [https://tinyurl.com/2tu2ku6x](https://tinyurl.com/2tu2ku6x) ([mirror](https://B2n.ir/x45511))
-+ [https://tinyurl.com/2hv2p34u](https://tinyurl.com/2hv2p34u) ([mirror](https://B2n.ir/g67683))
++ [https://golophayjahande.com/Farcry3/PS4/EP0001-CUSA10326_00-FARCRY3REMASTER0-A0102-V0100-DUPLEX-FANSUB.rar](https://golophayjahande.com/Farcry3/PS4/EP0001-CUSA10326_00-FARCRY3REMASTER0-A0102-V0100-DUPLEX-FANSUB.rar) ([mirror](https://B2n.ir/x45511))
++ [https://golophayjahande.com/Farcry3/PS4/EP0001-CUSA10326_00-FARCRY3REMASTER0-A0102-V0100-TheRadziu-FANSUB.rar]([https://tinyurl.com/2hv2p34u](https://golophayjahande.com/Farcry3/PS4/EP0001-CUSA10326_00-FARCRY3REMASTER0-A0102-V0100-TheRadziu-FANSUB.rar)) ([mirror](https://B2n.ir/g67683))
 
 
 # SSL Error
